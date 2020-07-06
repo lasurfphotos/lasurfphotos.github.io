@@ -1,4 +1,4 @@
-##Recent surf photo sessions
+## Recent surf photo sessions
 
 <a href="https://photos.app.goo.gl/MYex2T6pXrjKNnTw9" target="_blank">07/05/2020. Leo Carillo (4pm - 8pm)</a>
 
