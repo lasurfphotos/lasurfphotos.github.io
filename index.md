@@ -1,6 +1,6 @@
 ## Recent surf photo sessions
 
-You can purchase HiRes unwatermarked photos. 
+You can purchase HiRes unwatermarked photos. <br/>
 1 photo - $5, 3 photos - $10.
 
 <a href="https://photos.app.goo.gl/dNupJiTXWo8XdBp49" target="_blank">07/06/2020. Leo Carillo (6:50pm - 8pm) - 310 photos</a>
