@@ -1,10 +1,8 @@
 ## Recent surf photo sessions
 
-<a href="#" target="_blank">07/06/2020. Leo Carillo (4pm - 8pm)  - coming soon</a>
+<a href="https://photos.app.goo.gl/dNupJiTXWo8XdBp49" target="_blank">07/06/2020. Leo Carillo (6:50pm - 8pm) - 310 photos</a>
 
 <a href="https://photos.app.goo.gl/FER4rFtsZopRYSYk8" target="_blank">07/06/2020. County Line (9:30am - 11:00am) - 60 photos</a>
-
-<a href="https://photos.app.goo.gl/dNupJiTXWo8XdBp49" target="_blank">07/06/2020. Leo Carillo (6:50pm - 8pm) - 310 photos</a>
 
 <a href="https://photos.app.goo.gl/SPi7ww8bUEhcZxTe9" target="_blank">07/05/2020. Leo Carillo part 3 (7pm - 8pm) - xxx photos</a>
 
