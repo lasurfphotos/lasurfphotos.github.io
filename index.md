@@ -7,7 +7,7 @@ You can purchase HiRes unwatermarked photos. <br/>
 
 <a href="https://photos.app.goo.gl/FER4rFtsZopRYSYk8" target="_blank">07/06/2020. County Line (9:30am - 11:00am) - 60 photos</a>
 
-<a href="https://photos.app.goo.gl/oCX1XekH6BCikFnB6" target="_blank">07/05/2020. Leo Carillo part 3 (7pm - 8pm) - xxx photos</a>
+<a href="https://photos.app.goo.gl/oCX1XekH6BCikFnB6" target="_blank">07/05/2020. Leo Carillo part 3 (7pm - 8pm) - 578 photos</a>
 
 <a href="https://photos.app.goo.gl/DviiYMC6MVVoD9bw6" target="_blank">07/05/2020. Leo Carillo part 2 (6pm - 7pm) - 661 photos</a>
 
