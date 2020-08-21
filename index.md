@@ -3,7 +3,7 @@
 You can purchase HiRes unwatermarked photos. <br/>
 1 photo - $5, 3 photos - $10.
 
-<a href="https://photos.app.goo.gl/qTPpj6agVAaSxMC1A" target="_blank">08/20/2020. County Line (5:00pm - 7:00pm) - 320 photos</a>
+<a href="https://photos.app.goo.gl/qTPpj6agVAaSxMC1A" target="_blank">08/20/2020. County Line (5:00pm - 7:00pm) - 302 photos</a>
 
 <a href="https://photos.app.goo.gl/o1qnppCmGHkL1ybe7" target="_blank">08/19/2020. County Line (5:40pm - 6:00pm) - 54 photos</a>
 
